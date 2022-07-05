@@ -1,0 +1,1 @@
+# shosinsyamusashi.github.io
